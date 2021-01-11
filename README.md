@@ -38,7 +38,7 @@ Cream Cheese Frosting:
 1 1/4 cups (300 ml) cold heavy whipping cream (cream with a 35-40% butterfat content)
 
 
-
+GO TO THE WEBSITE BELOW TO READ THE COMPLETE INSTRUCTIONS:
 
 Read more: https://www.joyofbaking.com/RedVelvetCake.html#ixzz6jDpXmszX
 Follow us: @joyofbaking on Twitter | joyofbaking on Facebook
